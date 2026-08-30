@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BORA950426HMCNSL04
+BORA950426HMCNSL04
